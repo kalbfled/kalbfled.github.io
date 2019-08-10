@@ -1,37 +1,17 @@
-## Welcome to GitHub Pages
+# David James Kalbfleisch
 
-You can use the [editor on GitHub](https://github.com/kalbfled/kalbfled.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+Welcome to my home on the World Wide Web.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## Covid-19: A Puzzle Game
 
-### Markdown
+I am currently developing and user testing a puzzle game for mobile devices.  [Here](https://www.davejk.me/covid-19-puzzle.html) are the instructions.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## Visibility Precomputation
 
-```markdown
-Syntax highlighted code block
+Visit [Build the Oasis](https://www.buildtheoasis.com) to learn about my patent pending method for 3D content delivery.  I am nearly finished with a much more compelling demo with none of the limitations of the current proof-of-concept.
 
-# Header 1
-## Header 2
-### Header 3
+## Contact
 
-- Bulleted
-- List
+E-mail: 1.21e9W_at_ProtonMail_dot_com
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/kalbfled/kalbfled.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+PGP: [BAE1 D634 7315 572E 7390 9B6A D617 49F8 8156 2F3D](https://raw.githubusercontent.com/kalbfled/kalbfled.github.io/master/djk_pm.asc)
