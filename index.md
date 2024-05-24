@@ -13,8 +13,7 @@ Most people call me Dave. I’m an enthusiastic user of [Blender](https://www.bl
 - [Vimeo](https://vimeo.com/davejk/)
 - [Itch.io](https://kalbfled.itch.io/)
 - [Github](https://github.com/kalbfled)
-- [Kaggle](https://www.kaggle.com/davejk/)
 
 ## Secure Contact
 
-PGP ([What is this?](https://proton.me/blog/what-is-pgp-encryption)): [BAE1 D634 7315 572E 7390 9B6A D617 49F8 8156 2F3D](https://raw.githubusercontent.com/kalbfled/kalbfled.github.io/master/djk_pm.asc)
+[BAE1 D634 7315 572E 7390 9B6A D617 49F8 8156 2F3D](https://raw.githubusercontent.com/kalbfled/kalbfled.github.io/master/djk_pm.asc) ([What is this?](https://proton.me/blog/what-is-pgp-encryption))
