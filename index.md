@@ -9,7 +9,7 @@ software engineer \| digital artist
 Most people call me Dave. I’m an enthusiastic user of [Blender](https://www.blender.org/) and [Godot Engine](https://godotengine.org/). Two of my ambitions are to submit a professional quality short film to a major film festival and to do something interesting with robotics.
 
 ## On the web
-- [YouTube](https://www.youtube.com/@davejk)
+- [YouTube](https://www.youtube.com/@useless.poodle)
 - [Vimeo](https://vimeo.com/davejk/)
 - [Itch.io](https://kalbfled.itch.io/)
 - [Github](https://github.com/kalbfled)
