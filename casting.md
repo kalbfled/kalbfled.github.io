@@ -26,6 +26,8 @@ Shooting the scene for the male characters will be at Lake Johnson around sunris
 
 When auditioning for either male role, please dress in whatever you would wear to go fishing in the early morning of an Autumn day, and record yourself from the waist up while sitting and reciting the prescribed dialogue.  The words and cadence need to sound natural.  You're just chilling with your friend by the lake.  It's okay to make small modifications if the exact words don't roll off your tongue.
 
+**For all roles, please also tell us about any relevant acting experience you have.**  For example, did you participate in drama in high school?  Have you acted in community theater or a television commercial?  We welcome you to send us links to your past work.
+
 ### Role 1: Doomer (man 21-27)
 
 Doomer is a firm non-believer in most things, which guides him in his cynical nature. He is a despairing artist who is never satisfied. At his core, he has quite a lot of empathy and love for the world and its people (Scabs included), despite knowing that they are all doomed eventually.
@@ -35,8 +37,6 @@ Doomer is a firm non-believer in most things, which guides him in his cynical na
 Please recite this dialogue on video:
 
 > I'm already tired, and I still got a whole lifetime left to go.  All I've got is some pretty ragtag scraps of willpower and the sort of complacent curiosity just strong enough to make me wonder what will happen in whatever moment comes next . . . .  And sunrises are cool too.
-
-Please also tell us about any relevant acting experience you have.  For example, did you participate in drama in high school?  Have you acted in community theater or a television commercial?
 
 ### Role 2: Scabs (man 20-26)
 
