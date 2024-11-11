@@ -50,7 +50,7 @@ Please recite this dialogue on video:
 
 ### Role 3: Lacy (woman 18-25)
 
-Lacy is a thrift store employee with whom Scabs is enfatuated.  This is a bit part for which you just need to smile and say, "Hi."  We will film Lacy's scene indoors at a mutually convenient time.
+Lacy is a thrift store employee with whom Scabs is infatuated.  This is a bit part for which you just need to smile and say, "Hi."  We will film Lacy's scene indoors at a mutually convenient time.
 
 #### How to audition
 
