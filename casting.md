@@ -14,7 +14,7 @@ For all video auditions, your cellular phone camera and built-in microphone are 
 
 Age ranges, when specified, are for the character; not the actor.  You should be able believably to play a person in the given age range.
 
-If you seem like a good candidate, you will receive a response from a ProtonMail or Gmail e-mail address or as a comment on your YouTube video.  If we like your audition but don't select you for a role, we will let you know and contact you directly when we have another part for which you might be a match.
+If you seem like a good candidate, you will receive a response via e-mail or as a comment on your YouTube video.  If we like your audition but don't select you for a role, we will let you know and contact you directly when we have another part for which you might be a match.
 
 ## Now casting for the comedy short "Doomer & Scabs: All and Nothing"
 
@@ -50,10 +50,12 @@ Please recite this dialogue on video:
 
 ### Role 3: Lacy (woman 18-25)
 
+**This part has been cast.**
+
 Lacy is a thrift store employee with whom Scabs is infatuated.  This is a bit part for which you just need to smile and say, "Hi."  We will film Lacy's scene indoors at a mutually convenient time.
 
-#### How to audition
+#### ~~How to audition~~
 
-Please send us a link to a recent, public (not behind a login) image of yourself wearing something appropriate for a woman working behind a cash register, and also tell us about any acting experience you have.  Alternatively, record a brief video to introduce yourself.
+~~Please send us a link to a recent, public (not behind a login) image of yourself wearing something appropriate for a woman working behind a cash register, and also tell us about any acting experience you have.  Alternatively, record a brief video to introduce yourself.~~
 
-We're hoping to meet somebody ready to go in the future, when we have a more prominent female role to offer.
+~~We're hoping to meet somebody ready to go in the future, when we have a more prominent female role to offer.~~
