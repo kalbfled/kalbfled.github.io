@@ -30,13 +30,15 @@ When auditioning for either male role, please dress in whatever you would wear t
 
 ### Role 1: Doomer (man 21-27)
 
+**This part has been cast.**
+
 Doomer is a firm non-believer in most things, which guides him in his cynical nature. He is a despairing artist who is never satisfied. At his core, he has quite a lot of empathy and love for the world and its people (Scabs included), despite knowing that they are all doomed eventually.
 
-#### How to audition
+#### ~~How to audition~~
 
-Please recite this dialogue on video:
+~~Please recite this dialogue on video:~~
 
-> I'm already tired, and I still got a whole lifetime left to go.  All I've got is some pretty ragtag scraps of willpower and the sort of complacent curiosity just strong enough to make me wonder what will happen in whatever moment comes next . . . .  And sunrises are cool too.
+> ~~I'm already tired, and I still got a whole lifetime left to go.  All I've got is some pretty ragtag scraps of willpower and the sort of complacent curiosity just strong enough to make me wonder what will happen in whatever moment comes next . . . .  And sunrises are cool too.~~
 
 ### Role 2: Scabs (man 20-26)
 
