@@ -16,11 +16,13 @@ Age ranges, when specified, are for the character; not the actor.  You should be
 
 If you seem like a good candidate, you will receive a response via e-mail or as a comment on your YouTube video.  If we like your audition but don't select you for a role, we will let you know and contact you directly when we have another part for which you might be a match.
 
-## Now casting for the comedy short "Doomer & Scabs: All and Nothing"
+## Doomer & Scabs: All and Nothing
 
 ![Doomer & Scabs: All and Nothing](/images/dns_aan.jpg)
 
-We want to cast 3 people in the vicinity of Raleigh, NC.  This short primarily features 2 young men having a philosphical conversation while fishing.  The other role is for a young woman in a brief cutaway scene.  Pre-production mostly is complete, and we desire to move to principal photography as soon as we have actors who know their lines.
+**We are no longer casting for this production.**
+
+~~We want to cast 3 people in the vicinity of Raleigh, NC.~~  This short primarily features 2 young men having a philosphical conversation while fishing.  The other role is for a young woman in a brief cutaway scene.  Pre-production mostly is complete, and we desire to move to principal photography as soon as we have actors who know their lines.
 
 Shooting the scene for the male characters will be at Lake Johnson around sunrise, so **please only audition for those roles if you can be available that early in the morning.**  The male characters have about 10 minutes of dialogue total to memorize and rehearse.  The word count is evenly divided between them.
 
@@ -42,13 +44,15 @@ Doomer is a firm non-believer in most things, which guides him in his cynical na
 
 ### Role 2: Scabs (man 20-26)
 
+**This part has been cast.**
+
 Scabs is firm believer in magic, which is in all things and moves through all things. He has some misguided optimism--the feeling that he knows the truth about everything.  At his core, he is a pretty alright dude who cares about others deeply.  He believes that the magic/universe will work everything out for good and that he doesn't really have to worry too much.
 
-#### How to audition
+#### ~~How to audition~~
 
-Please recite this dialogue on video:
+~~Please recite this dialogue on video:~~
 
-> Yeah, my dad told me about the magic. A long time ago, somebody figured out that if you made this specific shape out of specific materials, and if you got going at a certain speed, then magically, the world would let you fly.  I think the magic part is like unseen forces let us do the actual act of flight, but you still need all the other stuff too.
+> ~~Yeah, my dad told me about the magic. A long time ago, somebody figured out that if you made this specific shape out of specific materials, and if you got going at a certain speed, then magically, the world would let you fly.  I think the magic part is like unseen forces let us do the actual act of flight, but you still need all the other stuff too.~~
 
 ### Role 3: Lacy (woman 18-25)
 
