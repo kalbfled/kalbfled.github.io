@@ -20,9 +20,7 @@ If you seem like a good candidate, you will receive a response via e-mail or as 
 
 ![Doomer & Scabs: All and Nothing](/images/dns_aan.jpg)
 
-**We are no longer casting for this production.**
-
-~~We want to cast 3 people in the vicinity of Raleigh, NC.~~  This short primarily features 2 young men having a philosphical conversation while fishing.  The other role is for a young woman in a brief cutaway scene.  Pre-production mostly is complete, and we desire to move to principal photography as soon as we have actors who know their lines.
+We want to cast 3 people in the vicinity of Raleigh, NC.  This short primarily features 2 young men having a philosphical conversation while fishing.  The other role is for a young woman in a brief cutaway scene.  Pre-production mostly is complete, and we desire to move to principal photography as soon as we have actors who know their lines.
 
 Shooting the scene for the male characters will be at Lake Johnson around sunrise, so **please only audition for those roles if you can be available that early in the morning.**  The male characters have about 10 minutes of dialogue total to memorize and rehearse.  The word count is evenly divided between them.
 
@@ -56,12 +54,10 @@ Scabs is firm believer in magic, which is in all things and moves through all th
 
 ### Role 3: Lacy (woman 18-25)
 
-**This part has been cast.**
-
 Lacy is a thrift store employee with whom Scabs is infatuated.  This is a bit part for which you just need to smile and say, "Hi."  We will film Lacy's scene indoors at a mutually convenient time.
 
-#### ~~How to audition~~
+#### How to audition
 
-~~Please send us a link to a recent, public (not behind a login) image of yourself wearing something appropriate for a woman working behind a cash register, and also tell us about any acting experience you have.  Alternatively, record a brief video to introduce yourself.~~
+Please send us a link to a recent, public (not behind a login) image of yourself wearing something appropriate for a woman working behind a cash register, and also tell us about any acting experience you have.  Alternatively, record a brief video to introduce yourself.
 
-~~We're hoping to meet somebody ready to go in the future, when we have a more prominent female role to offer.~~
+We're hoping to meet somebody ready to go in the future, when we have a more prominent female role to offer.
